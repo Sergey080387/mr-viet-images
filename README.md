@@ -1,1 +1,0 @@
-# mr-viet-images
